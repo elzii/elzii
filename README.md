@@ -1,3 +1,3 @@
 # 👨‍🚀
 
-Design Technologist & Engineer currently @ Ford working to make better driver experiences. 
+Design Technologist & Engineer currently @ Ford working to make better driving experiences. 
